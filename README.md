@@ -4,6 +4,6 @@
 
 最新地址：www.98x76.com
 
-备用地址：www.98x76.xyz
-www.67x89.xyz
-www.zuoz.xyz
+备用地址1：www.98x76.xyz
+备用地址2：www.67x89.xyz
+备用地址3：www.zuoz.xyz
